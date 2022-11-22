@@ -1,2 +1,0 @@
-# TendenciasTecnologicas
-TendenciasTecnologicas
